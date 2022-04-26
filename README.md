@@ -12,7 +12,9 @@ Discord : @_SupremeRakib#7358
 
 Email : md3021822@protonmail.com
 
-Facebook : https://www.facebook.com/RXArakib/
+Facebook : https://www.facebook.com/AXOrakib/
+
+Instagram : https://www.instagram.com/rzf_rakib/
 
 Twitter : https://twitter.com/_supremerakib
 
